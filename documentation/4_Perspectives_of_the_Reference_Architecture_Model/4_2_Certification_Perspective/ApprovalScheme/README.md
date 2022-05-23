@@ -1,1 +1,0 @@
-# IDSA Certification Approval Scheme
